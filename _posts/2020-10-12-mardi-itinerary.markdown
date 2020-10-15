@@ -56,7 +56,7 @@ You will reach Pokhara 4 or 5 am in the morning. You can ask your bus to leave y
 ![View from Kalimati]({{site.baseurl}}/images/kalimati.jpg)
 *View from Kalimati*
 
-<i>We took the second option: jeep ride to Lumre and started our trek from there, passing through beautiful small villages, dense green forests, cowsheds, with occasional view of Machhapuchhre (due to weather) and reached Forest Camp in 4 - 5 hrs. On the way, you can find lodges and hotels in Kalimati if you want to have your lunch.</i>
+<i>We took the second option: jeep ride to Lumre and started our trek from there, passing through beautiful small villages, dense green forests, cowsheds, with occasional view of Machhapuchhre (due to weather) and reached Forest Camp in 6 - 7 hrs. On the way, you can find lodges and hotels in Kalimati if you want to have your lunch.</i>
 
 ![Sunset in Forest Camp]({{site.baseurl}}/images/sunset_in_forest_camp.jpg)
 *Sunset in Forest Camp*
