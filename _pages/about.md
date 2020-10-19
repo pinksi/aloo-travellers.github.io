@@ -16,11 +16,11 @@ Yes, our happiness lies in travel. We frequently trek around beautiful parts of 
 
 In these years, the major treks we have done are: 
 
-    1. Ghorepani - Poonhill Trek [2015]
-    2. Annapurna Base Camp [2016]
-    3. Gosainkunda [2017]
-    4. Annapurna Circuit Trek [2018]
-    5. [Mardi Himal Trek](https://aloo-travellers.netlify.app/2020/10/12/mardi-itinerary/) [2019]
+1. Ghorepani - Poonhill Trek [2015]
+2. Annapurna Base Camp [2016]
+3. Gosainkunda [2017]
+4. Annapurna Circuit Trek [2018]
+5. [Mardi Himal Trek](https://aloo-travellers.netlify.app/2020/10/12/mardi-itinerary/) [2019]
 
 
 Anyone planning for any of these treks and need any suggestions, you can email us at: alootravellers@gmail.com or DM us at [Instagram](https://www.instagram.com/aloo_travellers/).
