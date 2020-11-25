@@ -19,22 +19,22 @@ Mardi Himal Trek is one of the quickest ways to be in the lap of himalayas and a
 **Route 1:**
 
     1. Kathmandu - Pokhara (On Night Bus) -- [6/7 hrs]
-    2. Pokhara - Hemja - Sidhing - Low Camp ---(Day 2) -- [5/6 hrs]
-    3. Low Camp - High Camp - Mardi Base Camp(MBC) ---(Day 3) -- [7/8 hrs]
+    2. Pokhara - Hemja - Sidhing - Low Camp ---(Day 1) -- [5/6 hrs]
+    3. Low Camp - High Camp - Mardi Base Camp(MBC) ---(Day 2) -- [7/8 hrs]
     4. MBC - Low Camp - Sidhing - Pokhara ---(Day 3) [7/8 hrs]
         4.1 Pokhara - Kathmandu (Night Bus) -- [6/7 hrs]
 
 **Route 2:**
 
     1. Kathmandu - Pokhara (On Night Bus) -- [6/7 hrs]
-    2. Pokhara - Hemja - Kalimati - Forest Camp ---(Day 2) -- [5/6 hrs]
-    3. Forest Camp - Low Camp - Middle Camp - Panorama Guest House ---(Day 3) -- [7/8 hrs]
+    2. Pokhara - Hemja - Kalimati - Forest Camp ---(Day 1) -- [5/6 hrs]
+    3. Forest Camp - Low Camp - Middle Camp - Panorama Guest House ---(Day 2) -- [7/8 hrs]
     4. Panorama Guest House - Middle Camp - Low Camp - Sidhing - Pokhara ---(Day 3) -- [5/6 hrs]
         4.1 Pokhara - Kathmandu (Night Bus) -- [6/7 hrs]
 
 
 **Note:** 
-We followed `Route 2` and went upto Middle Camp only and stayed at Panorama Guest House (3346m). This place also gives you very beautiful views of mountains. Since we went in February, the path above Low Camp was fully covered with snow, it was very challenging to find the right path and quite difficult to walk in snowy slippery road.
+We followed `Route 2` and went upto Middle Camp only and stayed at Panorama Guest House (3346m). This place gives you a very beautiful view of mountains. Since we went in February, the path above Low Camp was fully covered with snow, it was very challenging to find the right path and quite difficult to walk in snowy slippery road.
 
 ### Detailed Itinerary
 Take a night bus from Kathmandu to Pokhara. You can book a bus to Pokhara online or from New Buspark, Gongabu. One good thing is if you go straight to Kalanki, then also you can get a seat on a bus to Pokhara. But, we really advise you to pre-book your seat, as it is a long route (around 7-8 hrs) and you will need a comfortable seat where you can spend your night without getting tired. 
